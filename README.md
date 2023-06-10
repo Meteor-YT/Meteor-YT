@@ -2,4 +2,4 @@
 - 👀 I’m interested in Minecraft and Coding
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on Coding
-- 📫 How to reach me Please Don't!!!
+- 📫 How to reach me Discord (ReadyGamer1_#5982)
